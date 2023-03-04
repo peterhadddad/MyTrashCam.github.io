@@ -1,0 +1,1 @@
+# mytrashcam.github.io
